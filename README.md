@@ -1,1 +1,2 @@
-[Lab10.pdf](https://github.com/user-attachments/files/24348278/Lab10.pdf)
+
+[Lab10.pdf](https://github.com/user-attachments/files/24355354/Lab10.pdf)
